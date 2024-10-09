@@ -1,1 +1,1 @@
-这是一个demo测试
+Avatar design for personal use
